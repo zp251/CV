@@ -65,6 +65,16 @@ well as amendments to a number of bills.
 - Responsible for monitoring and documenting the discussions of the Legal
    Commission, and presented these updates during meetings for the Parliamentary Group.
 
+#### Founder and President, London (Sep 2013 - Jul 2016)
+*KCL Journal of International Law*
+
+- Founded the KCL Journal of International Law in collaboration with the School of Law and the Department of Political Economy, with the aim of exploring the challenges and opportunities the 21st century legal system poses for companies and individuals.
+- Directed a team of 20 editors and a budget of £4,000 per year.
+- Under my direction, the Journal expanded to over 200 active members and more than
+5 peer-reviewed issues were released in print.
+- Organised a number of conferences and receptions exploring themes such as
+“Competition Law and Big Data” and “Security Agencies and Human Rights”.
+
 ## Hobbies
 
 #### Team Captain (Oct 2017 - Jun 2018)
